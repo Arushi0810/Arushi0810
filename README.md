@@ -3,6 +3,7 @@
 - I’m a Computer Science student🤓 interested in Web Development💻
 - You'll find me Sketching✏ or trying to play the Uke🎶 in my free time
 - Always looking for collabs on fun projects🙌
+- Email : arushi.081002@gmail.com
 
 # ✨Stats
 
